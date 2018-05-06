@@ -1,3 +1,0 @@
-# ishan
-mullick 
-good 
